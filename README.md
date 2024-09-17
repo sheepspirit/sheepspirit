@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sheepspirit
 - 👀 I’m interested in AI
-- 🌱 I’m currently learning how to be an awesome product owner
+- 🌱 I’m constantly learning how to be an awesome product owner
 - 💞️ I’m looking to collaborate on everything but tobacco, alcohol and homeopathy related BULLSHIT products
 - 📫 How to reach me http://www.t.me/SheepSpirit
 
